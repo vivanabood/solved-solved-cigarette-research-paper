@@ -1,0 +1,3 @@
+Download Link: https://assignmentchef.com/product/solved-solved-cigarette-research-paper
+<br>
+Goals of the Tobacco Industry Research Tobacco industry research claimed that its mission was to find out whether smoking was dangerous, and if so, “the next job tackled will be to determine how to eliminate the danger from tobacco. It was to aid and assist research into tobacco use and health, and particularly into the alleged relationship between the use of tobacco and lung cancer, and to make available to the public factual information on this subject.
